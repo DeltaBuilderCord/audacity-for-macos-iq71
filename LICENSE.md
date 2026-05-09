@@ -1,4 +1,4 @@
-
+best Audacity for macOS Plugin | shortcut-customization + auto-tune offers the most advanced Audacity for macOS plugin, with shortcut-customization and auto-tune. Ideal for
 
 
 
